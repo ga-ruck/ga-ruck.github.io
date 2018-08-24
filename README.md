@@ -1,1 +1,0 @@
-# garuck.github.io
